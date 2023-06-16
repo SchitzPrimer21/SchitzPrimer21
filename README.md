@@ -13,10 +13,10 @@
 - ##### *I Have 16 Years Old 🆘*  
   
 
-- *Entre em contato comigo pelo [Whatsapp](https://wa.me/554191342613) 😀👍*  
+- ##### *Entre em contato comigo pelo [Whatsapp](https://wa.me/554191342613) 😀👍*  
   
 
-- Sou Gente boakkkj 🤘🤘🤘😍  
+- ##### *Sou Gente boakkkj 🤘🤘🤘😍* 
   
 
 <br/>  
